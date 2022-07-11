@@ -1,6 +1,6 @@
 ![Banner](https://cdn.discordapp.com/attachments/834745138424315924/928674314696405012/rust-gas-mask-banner.png)
 
-<h3><strong>End Westlands - Server Público</strong></h3>
+<h3><strong>End Westlands - Server Público</strong></h3><span>⛔CLOSED SERVER⛔</span>
 
 <hr>
 
